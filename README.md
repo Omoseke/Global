@@ -1,1 +1,1 @@
-# Global Slonn Website
+# Global Salon Website
